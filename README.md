@@ -1,0 +1,1 @@
+# xgpt_world_trend
